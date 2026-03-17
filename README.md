@@ -25,6 +25,6 @@ in applied statistics, multivariate analysis, and research methodologies.
 
 
 ## Get in Touch 📬
-- **[LinkedIn]**(inkedin.com/in/paulo-fanti-8401a2188)
+- **[LinkedIn]**(linkedin.com/in/paulo-fanti-8401a2188)
 
 
